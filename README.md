@@ -1,1 +1,2 @@
-voice mod wows - Azur lane A.Regolo. based on Yukikaze
+voice mod wows - Azur lane A.Regolo. based on Yukikaze voice mod
+
